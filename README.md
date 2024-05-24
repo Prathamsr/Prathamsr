@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16B7nDvwOuzXGyTVp4s64tCVU5l9D-f3_/view?usp=drive_link](https://drive.google.com/file/d/16B7nDvwOuzXGyTVp4s64tCVU5l9D-f3_/view?usp=drive_link)
 
-- ⚡ Fun fact **I am a really quick learner**
+- ⚡ Fun fact **I am a really quick learner.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
